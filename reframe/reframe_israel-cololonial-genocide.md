@@ -20,6 +20,10 @@ The European Union and United States have provided ongoing political cover, arms
 
 According to *The Lancet*, more than **186,000 Palestinians**-about 8% of Gaza’s prewar population-may have died as a result of direct and indirect effects of Israel’s campaign, a figure that reflects the magnitude of the policy’s human cost and is consistent with Palestinian community reporting[^5].
 
+### Zionist Intent to Maximize Deaths
+
+Israeli officials and their political backers are openly calling to maximize the deaths, even saying "kill all the kids". As well Ben Gvir celebrated the burning of i
+
 ### Conclusion
 
 The evidence-Palestinian testimonies, public statements by Israeli officials, and the documented actions and support of European and American governments-demonstrates that genocidal intent is a top-down policy, not a matter of individual excess or battlefield chaos. The ongoing destruction and mass death in Gaza are the direct result of deliberate decisions at the highest levels of government and their international backers[^2][^3][^5][^6][^9].

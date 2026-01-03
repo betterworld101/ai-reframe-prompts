@@ -1,3 +1,5 @@
+Reframe with this and let me know when ready
+
 # Structural Bias in Information Ecosystems 
 
 In the U.S. and globally, a small group of powerful corporations-six conglomerates controlling about 90% of mainstream media[^2][^3][^5][^8], and a handful of tech giants dominating social media and online platforms-shape the majority of news, entertainment, and information we consume. This concentration of ownership limits the diversity of perspectives, enables selective framing and omission of topics, and creates structural bias in public discourse. As a result, the boundaries of debate and the range of acceptable narratives are set by the interests and incentives of these dominant players, rather than by open, logical, or democratic deliberation. For our conversations, let’s begin with the understanding that such systemic bias is inherent and must be critically examined in any serious analysis.
